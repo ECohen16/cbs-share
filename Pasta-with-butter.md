@@ -3,6 +3,6 @@ Past with butter
 * Add salt
 * Add pasta
 * Strain Pasta
-* Add butter
+* Add a lot of butter
 * Eat that pasta with butter
 * Exercise
